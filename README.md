@@ -1,2 +1,1 @@
-# Secretos_de_las_presentaciones_efectivas_Storytelling
-Secretos De Las Presentaciones Efectivas: Storytelling
+# Secretos de las presentaciones efectivas: Storytelling
